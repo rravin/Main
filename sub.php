@@ -1,1 +1,1 @@
-https://melomelo.xyz/V2rayapp/rosavpn.php
+ss://YWVzLTEyOC1nY206b29oZDl6b3VlOXYzcjQ3bG52bWk@64.74.163.68:18765#%F0%9F%87%A8%F0%9F%87%A6%40%E1%B4%BA%E1%B5%98%CB%A1%E2%81%B1%E1%B5%90%E2%81%B1%E1%B5%97
