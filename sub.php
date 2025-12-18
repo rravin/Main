@@ -1,2 +1,2 @@
-https://melomelo.xyz/V2rayapp/rosavpn.php
 
+aHR0cHM6Ly9tZWxvbWVsby54eXovVjJyYXlhcHAvcm9zYXZwbi5waHA=
